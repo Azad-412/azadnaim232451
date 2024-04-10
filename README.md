@@ -11,7 +11,6 @@ Skills: C Language / HTML / CSS
 - 📫 How to reach me: naimmdazadsarder@gmail.com 
 - 😄 Pronouns: he/him 
 
-ps://github.com/azadnaim232451/azadnaim232451)  
 
 
 
